@@ -1,9 +1,9 @@
-# ACADEMIC BACKGROUND
-2024 -Physics major
+# ACADEMIC BACKGROUND📚
+2024 - Physics major focusing in dynamical systems
 
 
 
-# INTERESTS
+# INTERESTS 💡
 Systems biology
 
 Complex systems
